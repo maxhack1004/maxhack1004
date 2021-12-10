@@ -1,0 +1,4 @@
+-🖐Salom men @maxhack1004
+-🥳men 2001.10.04 da tug'ilganman
+-👀Python tiliga juda qiziqaman
+-🤝biladiganlar o'rgatishingizni iltimos qilaman
